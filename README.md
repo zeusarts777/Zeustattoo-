@@ -1,1 +1,1 @@
-# Zeustattoo-
+# Zeustattoo- i am a tattoo artist who is commited to bringing you the best most vibrant tattoos. i specialize in amny styles both bold and fine, color and black and grey. for new people welcome! for my loyal customers, you know what it is . 
